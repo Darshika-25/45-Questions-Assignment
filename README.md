@@ -1,0 +1,2 @@
+Within this repository, you will find a completed assignment featuring 45 diverse questions across a range of topics, catering to both basic and advanced levels. The exercises included offer clear solutions, making it an ideal resource for learning and assessment purposes. 
+If you require assistance or have any queries regarding the content, do not hesitate to reach out. 
